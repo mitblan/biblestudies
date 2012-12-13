@@ -1,0 +1,1 @@
+This is my personal collection of bible studies... If you want to view them be my guest but just remember these are truly intended for my own study so I can't say that everything in here is entirely complete or accurate as it stands... This is an ongoing work in progress.
